@@ -7,19 +7,19 @@ Immediately drain the noodles in a colander.
 Rinse the noodles in cool running water. This step stops the cooking process and removes the sticky starch.
 While still in the colander, add 1 to 2 teaspoons of oil to noodles. Any neutral oil works or for a smoky flavor, use toasted sesame oil.
 Toss the noodles gently, so that the oil evenly coats the noodles. This helps to get rid of stickiness from the noodles. Cover the colander with a plate and set aside. Let the noodles cool completely before you begin making schezwan noodles recipe.
-Next, heat 2 tablespoons of oil (any neutral tasting oil) in a pan or wok on medium heat. A wok or pot with a heavy bottom works best to get great cook on the veggies without burning.Once the oil is hot add ┬╜ teaspoon of finely chopped garlic and saut├⌐ for a few seconds.
-When the garlic is fragrant, increase the flame to medium or high heat and add ┬╝ cup of chopped spring onions (scallion whites). Stir fry for about half to 1 minute.
-The add ┬╝ cup of finely chopped french beans.
+Next, heat 2 tablespoons of oil (any neutral tasting oil) in a pan or wok on medium heat. A wok or pot with a heavy bottom works best to get great cook on the veggies without burning.Once the oil is hot add half teaspoon of finely chopped garlic and saut├⌐ for a few seconds.
+When the garlic is fragrant, increase the flame to medium or high heat and add half cup of chopped spring onions (scallion whites). Stir fry for about half to 1 minute.
+The add half cup of finely chopped french beans.
 Keep stir-frying, stirring continuously, on a medium to high heat for about 3 to 4 minutes.
 Now add the remaining veggies:
 Half cup finely chopped carrots
 Half cup of capsicum (green bell pepper)
 Half cup of finely chopped cabbage
 1 cup chopped or sliced mushrooms.
-You can also add zucchini, Chinese cabbage, or whatever vegetables you have on hand. You want about 1 ┬╜ to 2 cups of veggies total for this recipe.
+You can also add zucchini, Chinese cabbage, or whatever vegetables you have on hand. You want about 1 and a half to 2 cups of veggies total for this recipe.
 Continue to stir fry the veggies on a medium to high heat to get that great smoky flavor. Make sure you stir constantly so that the vegetables brown evenly without burning.
 Cook for about 7 to 8 minutes (time will vary with the kind of pan and intensity of flame or heat), until the edges of the veggies start to slightly brown. Depending on how crunchy or soft you like your vegetables, feel free to stir fry for more or less time.
-Now reduce the heat to medium and add 1 tablespoon of homemade or store bought Schezwan sauce, salt and ┬╝ to ┬╜ teaspoon black pepper.
+Now reduce the heat to medium and add 1 tablespoon of homemade or store bought Schezwan sauce, salt and half to one teaspoon black pepper.
 Add the cooked noodles one handful at a time, stirring gently to incorporate without mushing the noodles.
 Increase the flame back up to high, and continue to stir fry and toss the noodles for a couple of minutes until the Schezwan sauce coats all of the noodles.
 Add 1 teaspoon of either rice vinegar or apple cider vinegar, and toss again. This hit of tangy flavor really brings together the spiciness and sweetness of the Schezwan noodles with veggies.
